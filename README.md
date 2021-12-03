@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BIG-OG i'mnew here and i hope to learn more about this community.
+- 👋 Hi, I’m @BIG-OG i'm new here and i hope to learn more about this community.
 - 👀 I’m interested in music,art and film.
 - 🌱 I’m currently learning computer engineering 
 - 💞️ I’m looking to collaborate on art,Movies and film.
